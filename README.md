@@ -1,5 +1,4 @@
-Hi Friend!
-(Because i'a a chinese so my Englishi is not well)
-There are some PDFs abour XiaoNIaoBao!
-Look here!
-Please!
+各位，在经历社长多次更换之后，我们有了新的社长!
+--MC OCTOBER!
+虽然小鸟报停更了，但我们将在高考假重启小鸟报！
+还有，我们要做动画啦！或许会考虑再在GitHub上新建一个项目！
